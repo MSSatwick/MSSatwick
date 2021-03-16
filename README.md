@@ -6,7 +6,7 @@
 - 👀 DM me on instagram: https://www.instagram.com/_satwick_rockzz_/
 - ITS WISE TO RE-VISE OUR BEHAVIOUR
 FACTS ABOUT ME:
-I am good a communicaton✅
+I am good in communication✅
 Basically a foodie🍔
 Never ever give up🦾
 <!---
