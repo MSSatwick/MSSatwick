@@ -5,9 +5,9 @@
 - 📫 How to reach me :
 - 👀 DM me on instagram: https://www.instagram.com/_satwick_rockzz_/
 - ITS WISE TO RE-VISE OUR BEHAVIOUR
-FACTS ABOUT ME:
+-FACTS ABOUT ME:
 I am good in communication✅
-Basically a foodie🍔
+Love to explore ML
 Never ever give up🦾
 <!---
 MSSatwick/MSSatwick is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
